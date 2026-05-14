@@ -1,4 +1,4 @@
-#  
+#  sol's rng Scripts custom is the best sol's rng Script, featuring instant win and auto-heal. Safe and powerful for all your needs.
 
 
 
